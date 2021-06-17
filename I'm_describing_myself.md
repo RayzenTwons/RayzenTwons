@@ -1,0 +1,3 @@
+- Hi i'm rayzen 
+- I live in Turkey
+- I am a 16 year old high school 2 student
